@@ -27,6 +27,8 @@
 ⠀⠀⠀⠀⠀⠀⠀⠙⣔⣈⡀⠂⠄⢂⠁⢄⠐⡠⠁⠄⠨⠐⡀⡂⠄⠅⠌⢌⠌⡢⢂⢊⠢⡑⡬⠶⠝⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠁⠓⠳⠳⣤⣬⣤⣢⣔⣬⣬⣤⣥⣢⣤⣥⣥⣵⣔⣥⣬⣜⠚⠛⠚⠁⠀⠀⠀⠀⠀⠀⠀⠀
 
+https://static.wikia.nocookie.net/maplestory/images/e/e9/%EC%A3%BC%ED%99%A9%EB%B2%84%EC%84%AF.png/revision/latest/thumbnail/width/360/height/450?cb=20220702055839&path-prefix=ko
+
 
 ### 초록버섯
 
